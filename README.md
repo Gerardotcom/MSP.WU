@@ -1,1 +1,1 @@
-# MSX fron WU
+# MSX from WU
